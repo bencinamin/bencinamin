@@ -17,4 +17,4 @@ I am currently building small technical projects that connect mining operations,
 
 ## Contact
 
-LinkedIn: [Benjamín Encina](PEGA_AQUI_TU_LINKEDIN)
+LinkedIn: [Benjamín Encina](https://www.linkedin.com/in/benjamin-encina-cortez/)
